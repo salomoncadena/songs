@@ -1,33 +1,45 @@
 # Tengo que olvidarla
 ## Fabian Corrales
 ```
+D                 A
 Caminaba sobre espinas
+      Bm          F#m
 Y sangraban sus heridas
-Y aun así ella seguía
-Caminaba sin importarle
-El dolor
-Ella seguía detrás de mi.i.....
-Y desde entonces ice mi vida
+     G                       D
+Y aun así ella seguía y caminaba
+       G      G#      A
+Sin importarle el dolor
+        G              A
+Ella seguía detrás de mi
+
+           D
+Y desde entonces hice mi vida
 Si se puede llamar vida
 Al llevar siempre esta culpa
 De haberle causado un dolor
 Y destrozado el corazón
 Y no darle valor
 Al amor que sentía por mi
+
+
 Cada lágrima de sus ojos
-Quedaran grabada en mi mente
+Quedara grabada en mi mente
 Y con esa pena en el alma
 Condenado viviré siempre
 Y con esa pena en el alma
 Condenado viviré siempre
 Sin su perdón
+
+
 Sin su perdón no tengo vida
-Ya no hay paz a quien mi alma
+Ya no hay paz aquí en mi alma
 Y poco a poco la esperanza
-De tenerla se vuelve nada.a.a..............
-De tenerla aquí con migo
+De tenerla se vuelve nada a... a...
+De tenerla aquí conmigo
 Se vuelve nada
 Sin su perdón
+
+
 Sin su perdón no tengo vida
 Ya no hay paz a quien mi alma
 Y poco a poco la esperanza

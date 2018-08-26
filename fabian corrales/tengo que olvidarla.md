@@ -49,21 +49,27 @@ Sin su perdón
 Sin su perdón no tengo vida
           Bm
 Ya no hay paz aquí en mi alma
-         G           Em
+          G           Em
 Y poco a poco la esperanza
-      A
+      A               D   A    Bm
 De tenerla se vuelve nada a... a...
+      F#m          G    A
 De tenerla aquí conmigo
+          D
 Se vuelve nada
-Sin su perdón
 
 
+           D
 Sin su perdón no tengo vida
-Ya no hay paz a quien mi alma
+          Bm
+Ya no hay paz aquí en mi alma
+          G           Em
 Y poco a poco la esperanza
-De tenerla otra ves se vuelve nada.a.a..............
+      A               D
+De tenerla se vuelve nada
 
-# II
+
+II
 
 Desde el día de su partida
 Quedo en mi mente prendida

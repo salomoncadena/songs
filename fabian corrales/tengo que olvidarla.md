@@ -65,8 +65,10 @@ Sin su perdón no tengo vida
 Ya no hay paz aquí en mi alma
           G           Em
 Y poco a poco la esperanza
-      A               D
-De tenerla se vuelve nada
+      A
+De tenerla otra vez
+           D
+Se vuelve nada
 
 
 II
@@ -75,8 +77,8 @@ Desde el día de su partida
 Quedo en mi mente prendida
 Sus recuerdos su sonrisa
 Al dormir y al despertar
-Pero al ver que ella ya no esta.a.a
-Es cunado mas
+Pero al ver que ella ya no esta a. a.
+Es cuando mas
 Siento miedo
 De perderla para siempre
 Cuanto anhelo que regrese
